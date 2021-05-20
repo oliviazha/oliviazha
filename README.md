@@ -1,5 +1,5 @@
-### Hi there 👋
+### Hi! I'm Olivia 🌞
 
-I'm Olivia, a junior at Penn studying marketing and operations management!
+I'm currently a rising senior at Penn studying marketing and operations management and minoring in computer science! 
 
 
